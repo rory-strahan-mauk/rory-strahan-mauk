@@ -8,7 +8,7 @@ practice direct action to support those in need (give all your money to the poor
 
 ## to live without ego
 
-in my life i have recognized within me a desire for attention. over time i understood this to be a negative quality; what does the desire drive me to do? what do i contribute to society by satisfying this desire? to the former, i notice a craving for _credit_, though what is it meant to receive it? all things possible can only be discovered, not created. to be credited implies origin of creation. i believe that to contribute best to society involves action to prevent the idea of self from taking focus. this can be done by embracing the following ideas:
+in my life i have recognized in many people (including myself) the desire for attention. over time i understood this to be a negative quality; what does the desire drive one to do? what does one contribute to society by satisfying this desire? to the former, i notice a craving for _credit_, though what is it meant to receive it? all things possible can only be discovered, not created. to be credited implies origin of creation. i believe that to contribute best to society involves action to prevent the idea of self from taking focus. this can be done by embracing the following ideas:
 
 ### credit is for records
 
